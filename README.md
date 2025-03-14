@@ -3,7 +3,7 @@
 
 🧽 About Me :
 ---
-[💻・Linux Enjoyer](https://archlinux.org/download/)
+[❄️・Guns](http://guns.lol/933)
 
 🍜 Socials :
 ---
